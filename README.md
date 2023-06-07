@@ -7,4 +7,4 @@
 ## 爱发电
 赞助页面：https://afdian.net/a/freeGameBox
 
-![爱发电]([https://img-blog.csdnimg.cn/img_convert/fbe7fb4ee849502d8b493b959da80746.jpeg#pic_center](https://openai-75050.gzc.vod.tencent-cloud.com/openaiassets_0deccfc1951216dfd0c1af4f7bddc631.jpg))
+![在这里插入图片描述](https://openai-75050.gzc.vod.tencent-cloud.com/openaiassets_0deccfc1951216dfd0c1af4f7bddc631.jpg)
